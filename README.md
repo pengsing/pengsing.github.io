@@ -16,26 +16,26 @@
 
   
 ```最近观看动漫```  
-异度侵入、进击的巨人、火影忍者  
+进击的巨人  
 
 ```最近观看电影```
-大鱼、花与爱丽丝杀人事件  
+大鱼  
 ```最近浏览```  
-edddh.com、奇奇动漫、Netflix、煎蛋、[电影天堂](http://2w.cm)、[age动漫](https://www.agefans.tv/)、MBA智库百科、9gag、吾爱破解    
+煎蛋、[电影天堂](http://2w.cm)、[age动漫](https://www.agefans.tv/)    
 
 ```最近播放记录```  
-butterfly-MIYAVI（异度侵入）、be your girl-妖精的旋律、fish in the pool(花与爱丽丝杀人事件)、every breath you take—the police  
+butterfly-MIYAVI、be your girl、fish in the pool、every breath you take—the police  
 
 ```效力```  
- 戒色吧、书香东风     
+ 书香东风、戒色吧     
    
 *最近充电*  
 
 ```网课```
 作业帮直播课  
 ```最近摸索```  
-微信去性别、学习策略师叶修、机器学习  
+微信去性别、学习策略师、机器学习  
 ```最近阅读```  
 《戒为良药》 
 
-              Copyright © 彭信 2015-2018 |京ICP备16046255号-1
+              Copyright © 彭信 2015-2018
