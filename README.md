@@ -1,31 +1,29 @@
 # pengsing.github.io  
-  ## 彭信博客
-[博客首页](http://pengxin.baklib.com)
+  ## 信信页面
+[博客首页](http://pelsin.wodemo.net)
 ![J5pQN4.gif](https://s1.ax1x.com/2020/04/28/J5pQN4.gif)  
 
-  05年，乔布斯在毕业典礼上的演讲说，「你不可能充满预见地将生命的点滴串联起来；只有在你回头看的时候，你才会发现这些点点滴滴之间的联系。正是这种信仰让我不会失去希望，它让我的人生变得与众不同。」
-我在这里记录思考。
 
 ![
 ](https://s1.ax1x.com/2020/04/24/J0IlJe.png)  
- ```wojak``` ```Android粉``` ```进击的巨人粉``` ```4Chan阿宅```
-      
+  ```Android老司机``` ```曾追进击的巨人``` 
+ ``` 生日:7月8日```   ``` 喜欢聊天```  ``` 阿斯伯格综合征``````喜欢吐槽 ```
 *最近娱乐*  
   
 
 
   
-```最近追番```  
-头文字D、反叛的鲁路修、死亡笔记、进击的巨人  
+```最近看番```  
+全金属狂潮、青之文学-人间失格、团子大家族、我们的存在 
 
 ```最近观影```
-大鱼  
+  霸王别姬、V字仇杀队
 ```最近浏览```  
-煎蛋、[电影天堂](http://2w.cm)、[age动漫](https://www.agefans.tv/)、乐愚    
+233动漫、推特、youtube、煎蛋、[age动漫](https://www.agefans.tv/)    
 
 ```最近播放```  
-be your girl、fish in the pool、every breath you take—the police  
-
+ 
+my life-梦龙、团子大家族
   
       
    
@@ -33,8 +31,8 @@ be your girl、fish in the pool、every breath you take—the police
 
 
 ```最近摸索```  
-机器学习  
+形式逻辑、谓词逻辑语言、  逻辑谬误
 ```最近阅读```  
-《钢铁是怎样炼成的》 《红楼梦》
+《看见》-柴静、《香港第一课》、《阿斯伯格综合全指南》
 
-              Copyright © 彭信 2015-2021
+              Copyright © 信信 2015-2022
