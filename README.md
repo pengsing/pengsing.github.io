@@ -2,7 +2,7 @@
   ## 信信姐页面2021
 [博客首页](http://pelsin.wodemo.net)
 ![J5pQN4.gif](https://s1.ax1x.com/2020/04/28/J5pQN4.gif)
-  ```基督保守主义``` ``` 生日7月8日``` ``` Asperger``` 
+  ```理性主义``` ``` 生日7月8日``` ``` Asperger``` 
   *最近娱乐*  
   
 
